@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Jimmycarroll2021
+ Hi, I’m @Jimmycarroll2021
 
 
 📬 Get in Touch
